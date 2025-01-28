@@ -200,6 +200,13 @@
 Υποστήριξη παιδιών με κινητικές ή αισθητηριακές δυσκολίες μέσα από αυτοματοποιημένα και καινοτόμα συστήματα.
 Εξοπλισμός και κόστος
 
+Εξοπλισμός και κόστος
+
+LEGO® Education SPIKE™ Essential | LEGO Education | Eduk8 370 ευρώ
+NEZHA Inventor's kit for micro:bit | Διερευνητική Μάθηση 189 ευρώ
+Makey Makey Standard Kit από την Διερευνητική Μάθηση - why.gr 88,00 ευρώ
+Xiaomi Redmi Pad SE WiFi Tablet 8.7" Gray 4GB/64GB | Plaisio 139,90 ευρώ
+
 
 Βιβλιογραφικές Αναφορές
 
